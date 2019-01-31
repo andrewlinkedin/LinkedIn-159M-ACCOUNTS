@@ -55,10 +55,10 @@ sarah@spark.net:linked55
 irenakun@yahoo.com:steinke  
 LMWesttown@aol.com:Bailey  
 asharma05@gsb.columbia.edu:4success  
-scott@smcgregor.com:cit1st  
-brett.hopcroft@linklaters.com:springbokkie 
-Farokh.Balsara@in.ey.com:varun99  
-Abigail_Caspar@cable.comcast.com:lewis123  
+scott@smcgregor.com:cit1st       
+brett.hopcroft@linklaters.com:springbokkie      
+Farokh.Balsara@in.ey.com:varun99       
+Abigail_Caspar@cable.comcast.com:lewis123     
 instanttim@me.com:techno  
 odenir.proservice@ig.com.br:proalma  
 tkircher@mentor4inc.com:walker  
