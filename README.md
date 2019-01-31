@@ -11,16 +11,13 @@ Proof of content	100 lines of records from the DB. Format is Email:password
 
 
 
-stighammond@gmail.com:ufellow1
-
-jrusoff@mac.com:nagual
-
-JFarris@corillian.com:kylep826
-
-david@peerplus.com:8lunch
-jvnprakashrao@hotmail.com:yamini99
-trakwebster@traktor.com:poot2077
-y2b@your2ndbrain.com:tigers
+stighammond@gmail.com:ufellow1  
+jrusoff@mac.com:nagual 
+JFarris@corillian.com:kylep826  
+david@peerplus.com:8lunch  
+jvnprakashrao@hotmail.com:yamini99  
+trakwebster@traktor.com:poot2077  
+y2b@your2ndbrain.com:tigers  
 lionel.jean@gemplus.com:bonsamis
 josh@wulumulu.com:013572
 jokir@earthlink.net:sadie1
