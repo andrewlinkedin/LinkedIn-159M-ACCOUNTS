@@ -1,14 +1,15 @@
-
 LINKEDIN LEAKED DATABASE : 159M ACCOUNTS
 
-Link to this hacked database
+Link to this hacked database http://buy.rockert.pw/andrew
 
 
 
 This leak includes	418.128.998 records.
-Just open up the databases in your favorite text editor and Ctrl + F for the email you want to hack.
+Just open up the databases in your favourite text editor and Ctrl + F for the email you want to hack.
 
 Proof of content	100 lines of records from the DB. Format is Email:password
+
+
 
 stighammond@gmail.com:ufellow1
 jrusoff@mac.com:nagual
@@ -61,8 +62,6 @@ Abigail_Caspar@cable.comcast.com:lewis123
 instanttim@me.com:techno
 odenir.proservice@ig.com.br:proalma
 tkircher@mentor4inc.com:walker
-
-
 zyu8@yahoo.com:meiqiu
 michele@radiatepr.com:sydney
 kevin.hartz@stanfordalumni.org:sleepy99
@@ -114,7 +113,7 @@ borism@iqmetrix.com:vlad2171
 
 
 
-Yes, this means that for .012BTC	you can hack ANY linkedin user, and if they use the same password on other sites you can hack into there too. Their iCloud with all their personal photos, their email accounts, facebook and instagram are all vulnerable to being hacked once you have this database.
+Yes, this means that for .012BTC	you can hack ANY LinkedIn user, and if they use the same password on other sites you can hack into there too. Their iCloud with all their personal photos, their email accounts, Facebook and Instagram are all vulnerable to being hacked once you have this database.
 
 Enjoy and please help keep this leak private by not sharing it after you've purchased.
 
@@ -128,7 +127,9 @@ Tags (ignore):
 
 
 
-siph0n Database (@datasiph0n) | linkedin https://twitter.com/datasiph0n
+
+
+siph0n Database (@datasiph0n) | LinkedIn https://twitter.com/datasiph0n
 The latest Tweets from siph0n Database (@datasiph0n). Leaks Archive Database @@@@@@@ Escrow Marketplace @@@@@@@@@ Semi Automated ...
 You've visited this page 2 times. Last visit: 11/10/16
 siph0n Database on Twitter: "#database #leaked #hacked Databases ... https://twitter.com/datasiph0n/status/731217840032890880
