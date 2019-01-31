@@ -1,7 +1,7 @@
 
 LINKEDIN LEAKED DATABASE : 159M ACCOUNTS
 
-Link to this hacked database http://goo.gl/oR2YLC
+Link to this hacked database
 
 
 
@@ -10,10 +10,107 @@ Just open up the databases in your favorite text editor and Ctrl + F for the ema
 
 Proof of content	100 lines of records from the DB. Format is Email:password
 
-stighammond@gmail.com:ufellow1 jrusoff@mac.com:nagual JFarris@corillian.com:kylep826 david@peerplus.com:8lunch jvnprakashrao@hotmail.com:yamini99 trakwebster@traktor.com:poot2077 y2b@your2ndbrain.com:tigers lionel.jean@gemplus.com:bonsamis josh@wulumulu.com:013572 jokir@earthlink.net:sadie1 davefl12@yahoo.com:beaver linkedin@matthewburgess.com:shogun wwynens@attbi.com:taoboy avachat@hotmail.com:abhay19 Alejandro.Canavati@gecapital.com:pahola behlov@yahoo.com:upgrades subas11us@yahoo.com:subhash pchaynes1063@gmail.com:roadking tking@vmem.com:barney simone@evectors.it:nideknil Dan.Wilson@qwest.com:linked34 yumihosaka@yahoo.com:chococookie linkedin@hacksciences.com:fandango jeff.snyder@wdc.com:annabear jwvogel@tosbv.nl:vogel550 janet.wong@smgunited.com:selena mvanwijk@Verizon.net:20051915 rerb@analysts.com:superb the.gibbards@virgin.net:butterfly gareth@covercian.co.uk:w0lfgang rena.elizondo@nascentric.com:re092971 abewashington@gmail.com:mazamaza y99@BlackPlanet.com:yaritza lstarr65@hotmail.com:wabbit frederic.dudilot@unicem.fr:240169 scporfirio@hotmail.com:sp007865 awaneeshpande@yahoo.com:sweta76 aida.marcial@exitsouth.com:pebbles_1 linkedin@depallens.com:phd768 Danizao.cruz@gmail.com:Caxcas sarah@spark.net:linked55 irenakun@yahoo.com:steinke LMWesttown@aol.com:Bailey asharma05@gsb.columbia.edu:4success scott@smcgregor.com:cit1st brett.hopcroft@linklaters.com:springbokkie Farokh.Balsara@in.ey.com:varun99 Abigail_Caspar@cable.comcast.com:lewis123 instanttim@me.com:techno odenir.proservice@ig.com.br:proalma tkircher@mentor4inc.com:walker
+stighammond@gmail.com:ufellow1
+jrusoff@mac.com:nagual
+JFarris@corillian.com:kylep826
+david@peerplus.com:8lunch
+jvnprakashrao@hotmail.com:yamini99
+trakwebster@traktor.com:poot2077
+y2b@your2ndbrain.com:tigers
+lionel.jean@gemplus.com:bonsamis
+josh@wulumulu.com:013572
+jokir@earthlink.net:sadie1
+davefl12@yahoo.com:beaver
+linkedin@matthewburgess.com:shogun
+wwynens@attbi.com:taoboy
+avachat@hotmail.com:abhay19
+Alejandro.Canavati@gecapital.com:pahola
+behlov@yahoo.com:upgrades
+subas11us@yahoo.com:subhash
+pchaynes1063@gmail.com:roadking
+tking@vmem.com:barney
+simone@evectors.it:nideknil
+Dan.Wilson@qwest.com:linked34
+yumihosaka@yahoo.com:chococookie
+linkedin@hacksciences.com:fandango
+jeff.snyder@wdc.com:annabear
+jwvogel@tosbv.nl:vogel550
+janet.wong@smgunited.com:selena
+mvanwijk@Verizon.net:20051915
+rerb@analysts.com:superb
+the.gibbards@virgin.net:butterfly
+gareth@covercian.co.uk:w0lfgang
+rena.elizondo@nascentric.com:re092971
+abewashington@gmail.com:mazamaza
+y99@BlackPlanet.com:yaritza
+lstarr65@hotmail.com:wabbit
+frederic.dudilot@unicem.fr:240169
+scporfirio@hotmail.com:sp007865
+awaneeshpande@yahoo.com:sweta76
+aida.marcial@exitsouth.com:pebbles_1
+linkedin@depallens.com:phd768
+Danizao.cruz@gmail.com:Caxcas
+sarah@spark.net:linked55
+irenakun@yahoo.com:steinke
+LMWesttown@aol.com:Bailey
+asharma05@gsb.columbia.edu:4success
+scott@smcgregor.com:cit1st
+brett.hopcroft@linklaters.com:springbokkie
+Farokh.Balsara@in.ey.com:varun99
+Abigail_Caspar@cable.comcast.com:lewis123
+instanttim@me.com:techno
+odenir.proservice@ig.com.br:proalma
+tkircher@mentor4inc.com:walker
 
-zyu8@yahoo.com:meiqiu michele@radiatepr.com:sydney kevin.hartz@stanfordalumni.org:sleepy99 esteban.erize@samsistemas.com.ar:campana3 rterkowitz@ABSCapital.com:mikejeff tobygoldblatt@yahoo.co.uk:bananna eric.pers@gmail.com:Buddy18 alexander.artope@gmail.com:julian85 soegtrop@muenster.de:mallorca jamesbuckle@yahoo.com:sunshine stvnwcnrd@hotmail.com:cf3825et mounia.popovic@gmail.com:Benamar jim_argalas@presidiounion.com:gura755 fabernjudd@comcast.net:itsasecret k.chinn@stanfordalumni.org:br1tn3y acritchett@one-economy.com:lovelove lbraziel@wcwdcorp.com:2320255a william@objecthouse.com:kenufa bflorian@gmail.com:hedges sharting@onfuego.com:success retz@yahoo.co.jp:retz5011 markd@borkware.com:fnord23 aclcarter@yahoo.co.uk:password d.h.elzinga@freeler.nl:siepmaus kimberly.oblak@gbmail.com:Spring41 masont@gtlaw.com:gorham hugo_gayoso@hotmail.com:valeguada venema@vhu.de:poespoes lisa@fitfor2.com:5fitfor2 dcalao@modernelectric.com:bigd5576 Sheila.Kennedy@mortgagefamily.com:lucky21 jaimerebecca@gmail.com:horatio binho@scriptbrasil.com:19071982 lainie.coplan@cbeyond.net:pink82 jodi.albanese@i-deal.com:Password22 sarah.ambrose@hmhpub.com:whitney1 bnselby@stanfordalumni.org:Orange061 ppy1@cornell.edu:denguyen nmadhu@MIT.EDU:mymummy Itai.Frieberger@888holdings.com:01360136 Nagharaj_BG@Dell.com:nagharajbg andrew@andrewrobertson.com:qwerty wdknights@hotmail.com:Inside01 posnerlj@comcast.net:larisa richard@geeksoncall.com:preston francois.granger@gmail.com:edcrfv ashetty@dataglance.com:nishita97 borism@iqmetrix.com:vlad2171
 
+zyu8@yahoo.com:meiqiu
+michele@radiatepr.com:sydney
+kevin.hartz@stanfordalumni.org:sleepy99
+esteban.erize@samsistemas.com.ar:campana3
+rterkowitz@ABSCapital.com:mikejeff
+tobygoldblatt@yahoo.co.uk:bananna
+eric.pers@gmail.com:Buddy18
+alexander.artope@gmail.com:julian85
+soegtrop@muenster.de:mallorca
+jamesbuckle@yahoo.com:sunshine
+stvnwcnrd@hotmail.com:cf3825et
+mounia.popovic@gmail.com:Benamar
+jim_argalas@presidiounion.com:gura755
+fabernjudd@comcast.net:itsasecret
+k.chinn@stanfordalumni.org:br1tn3y
+acritchett@one-economy.com:lovelove
+lbraziel@wcwdcorp.com:2320255a
+william@objecthouse.com:kenufa
+bflorian@gmail.com:hedges
+sharting@onfuego.com:success
+retz@yahoo.co.jp:retz5011
+markd@borkware.com:fnord23
+aclcarter@yahoo.co.uk:password
+d.h.elzinga@freeler.nl:siepmaus
+kimberly.oblak@gbmail.com:Spring41
+masont@gtlaw.com:gorham
+hugo_gayoso@hotmail.com:valeguada
+venema@vhu.de:poespoes
+lisa@fitfor2.com:5fitfor2
+dcalao@modernelectric.com:bigd5576
+Sheila.Kennedy@mortgagefamily.com:lucky21
+jaimerebecca@gmail.com:horatio
+binho@scriptbrasil.com:19071982
+lainie.coplan@cbeyond.net:pink82
+jodi.albanese@i-deal.com:Password22
+sarah.ambrose@hmhpub.com:whitney1
+bnselby@stanfordalumni.org:Orange061
+ppy1@cornell.edu:denguyen
+nmadhu@MIT.EDU:mymummy
+Itai.Frieberger@888holdings.com:01360136
+Nagharaj_BG@Dell.com:nagharajbg
+andrew@andrewrobertson.com:qwerty
+wdknights@hotmail.com:Inside01
+posnerlj@comcast.net:larisa
+richard@geeksoncall.com:preston
+francois.granger@gmail.com:edcrfv
+ashetty@dataglance.com:nishita97
+borism@iqmetrix.com:vlad2171
 
 
 
