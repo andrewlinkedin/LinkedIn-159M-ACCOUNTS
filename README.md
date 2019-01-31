@@ -122,46 +122,7 @@ Enjoy and please help keep this leak private by not sharing it after you've purc
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-======================================================================================
-List of Few Original DB Leaks :
-https://bit.ly/2yCVr4k
-======================================================================================
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 Tags (ignore):
-
-
 
 
 
